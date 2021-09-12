@@ -1,1 +1,1 @@
-Laboratory work at ITMO University,informatic. first year
+Laboratory work at ITMO University,informatics. first year
